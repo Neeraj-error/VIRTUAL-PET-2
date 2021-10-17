@@ -1,1 +1,5 @@
 # class-35th-project
+
+PROJECT IN PROGRESS 
+
+ERROR PHOTOS MISSING 
